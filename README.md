@@ -1,11 +1,11 @@
 # surpresa-dia1
 # 💘 Commit do Amor – Dia 1
 
-Oiii amor, dev mais incrível da minha vida 🧑‍💻
+Oiii amorzão, dev mais incrível da minha vida 🧑‍💻
 
 Esse é o **commit inicial** do nosso repositório mais importante: o da nossa história.
 
-Não faço ideia do que eu to fazendo aqui mas o chat gpt me ajudou a usar uns códigos pra fazer uma surpresa pra voce hahaha Ele sugeriu vários termos de programação que eu tentei entender o significado mas não rolou (tipo esse commit aí hahaha), então se tiver mt ridículo você releva, o que importa é minha intenção aqui, tá bem? 😂
+Não faço ideia do que eu to fazendo aqui mas o chat gpt me ajudou a usar uns códigos pra fazer uma surpresa pra voce hahaha Ele sugeriu vários negócios de programação que eu tentei entender o significado mas não rolou, então se tiver mt ridículo você releva, o que importa é minha intenção aqui, tá bem? 😂
 
 Esses dias você comentou que não comemoramos dia dos namorados (o que é uma mentira), e aí eu resolvi comemorar não só o dia 12 de junho, mas lembrar todos os dias um pouquinho do porque estamos juntos e que vale a pena comemorar essa data do nosso jeito (ignorando o apelo capitalista que tem nela).
 
@@ -17,6 +17,11 @@ Como todo bom projeto, nosso relacionamento também tem:
 - Alguns bugs que viram aprendizado
 - Commits diários de cuidado
 - E várias novas versões do que somos juntos 💞
+
+
+Para começar esse projeto, eu quis demonstrar que apoio e admiro muito seu trabalho e profissão, e por isso tentei fazer algo numa vibe tec, pra mostrar que quero sempre me fazer presente, entender e me adaptar ao seu mundo também 🖤
+
+Como seus dias são estressantes e sei que tem tempooo que você não pede isso, resolvi começar com algo simples, mas que pode ajudar na sua semana, espero que goste!
 
 ## 🎁 Presente de hoje:
 
