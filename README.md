@@ -31,3 +31,21 @@ Como seus dias são estressantes e sei que tem tempooo que você não pede isso,
 > Próximo pull request: amanhã.  
 >  
 > Te amooooo
+
+---
+
+## 💘 Commit do Amor – Dia 2
+
+Hoje é dia de testar seu conhecimento sobre o nosso relacionamento, ein?! 👀
+
+Responda com sabedoria, carinho e zero pressão (mentira, se errar tudo vou fingir que é bug no código 😂).
+
+Aqui o negócio ficou mais sério, o GPT me passou um codigo que n tava funcionando e foi dedo no c* e gritaria, mas acho que deu certo hahaha
+Valorize meu esforço! 
+
+🎯 Acesse aqui a surpresa de hoje:  
+👉 [Clique para fazer o quiz](https://dia2-quiz.netlify.app/) 
+
+Spoiler do dia: você vai ser avaliado. Com amor. 💅  
+Próximo pull request: amanhã.
+
