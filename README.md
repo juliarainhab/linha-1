@@ -43,9 +43,11 @@ Responda com sabedoria, carinho e zero pressão (mentira, se errar tudo vou fing
 Aqui o negócio ficou mais sério, o GPT me passou um codigo que n tava funcionando e foi dedo no c* e gritaria, mas acho que deu certo hahaha
 Valorize meu esforço! 
 
-🎯 Acesse aqui a surpresa de hoje:  
+## 🎁 Presente de hoje:
+
 👉 [Clique para fazer o quiz](https://dia2-quiz.netlify.app/) 
 
-Spoiler do dia: você vai ser avaliado. Com amor. 💅  
-Próximo pull request: amanhã.
-
+> Spoiler:você vai ser avaliado. Com amor. 💅  
+> Próximo pull request: amanhã.  
+>  
+> Te amooooo
