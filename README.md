@@ -51,3 +51,20 @@ Valorize meu esforço!
 > Próximo pull request: amanhã.  
 >  
 > Te amooooo
+
+
+
+---
+
+## 💘 Commit do Amor – Dia 3: Hora de Pausar
+
+Nem só de código vive um projeto sólido. Às vezes, a melhor atualização é dar um `pause()` nas tarefas e simplesmente aproveitar o momento.
+
+Hoje é um daqueles dias em que o pull request vem com comidinha, silêncio e tela — mas não a do computador 👀.
+
+ Missão do dia: esteja disponível hoje à noite, sem Abner e sem discord hahaha
+
+(Algumas histórias a gente não lê em livros ou linhas de código. A gente vive.)
+
+Próximo commit: amanhã. Mas o de hoje... ✨
+👉 [Clique para desbloquear](https://projeto-dia3.netlify.app/)) 
