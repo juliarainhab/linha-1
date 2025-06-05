@@ -66,5 +66,36 @@ Hoje é um daqueles dias em que o pull request vem com comidinha, silêncio e te
 
 (Algumas histórias a gente não lê em livros ou linhas de código. A gente vive.)
 
-Próximo commit: amanhã. Mas o de hoje... ✨
+Próximo pull request: amanhã. Mas o de hoje... ✨
 👉 [Clique para desbloquear](https://projeto-dia3.netlify.app/)) 
+
+
+
+
+
+---
+
+## 💘 Commit do Amor – Dia 4
+
+Hoje o desafio é diferente.  
+
+Não é sobre lembrar datas, nem acertar detalhes sobre mim.  
+
+Hoje vai precisar de criatividade:  
+
+**Pense como um lobo, faro aguçado**  
+Porque não há glória nem vitória sem sofrimento.  
+
+Sei lá, hoje eu acordei meio Renato Russo querendo recuperar o tempo perdido 😂  
+
+E eu sempre fui sonhadora, é isso que me mantém viva, sabe.  
+Mas a vida não é o problema, é batalha, desafio...  
+
+Pode parecer aleatório, mas se você pensar BEM, vai entender.  
+
+Mas de toda forma não terá como treinar pra experiencia de hoje 👀😌  
+
+**A única instrução é:** esteja pronto mais tarde.
+
+
+> Próximo pull request: amanhã.  
