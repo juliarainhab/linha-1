@@ -99,3 +99,26 @@ Mas de toda forma não terá como treinar pra experiencia de hoje 👀😌
 
 
 > Próximo pull request: amanhã.  
+
+
+## 💘 Commit do Amor – Dia 5
+
+Você tem o dom de buscar a verdade. E hoje isso vai ser muito útil.
+
+De espectador à protagonista, hoje vamos ver seu talento na prática.
+
+Mas antes, pra saber a experiência, você vai ser testado.  
+
+A maioria vai falhar.  
+Mas você não é a maioria, né?
+
+🗂️ Acesse o documento confidencial aqui:  
+👉 [projeto-dia5.netlify.app](https://projeto-dia5.netlify.app)
+
+Boa sorte.
+
+> Próximo pull request: amanhã.  
+>  
+> Te amooooo
+
+
