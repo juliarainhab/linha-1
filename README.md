@@ -122,3 +122,24 @@ Boa sorte.
 > Te amooooo
 
 
+
+
+## 💘 Commit do Amor – Dia 6
+
+Chegamos ao sexto dia da nossa sprint romântica, e eu tô oficialmente me sentindo uma branch sua: sempre querendo se juntar, sempre querendo fazer merge 😌 (com conflitos zero, claro).
+
+Hoje, o commit vem com um payload especial… não dá pra ver no código-fonte, só você vai entender o real valor do que tá sendo entregue aqui.
+
+E olha, esse “presente” foi escolhido com carinho porque:
+	•	Tá no backlog do seu coração faz tempo 👀
+	•	Você merece um mimo que não é só sobre atenção, mas também sobre intenção
+	•	E, vamos ser sinceros: ninguém conhece suas preferências melhor que eu, né? 😎
+
+Não posso dar muitos detalhes mas te garanto: tem tudo a ver com seu autocuidado e sua felicidade pessoal!
+
+O horario é o de sempre 🥰
+
+> Próximo pull request: amanhã.  
+>  
+> Te amooooo
+
