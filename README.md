@@ -143,3 +143,21 @@ O horario é o de sempre 🥰
 >  
 > Te amooooo
 
+
+
+## 💘 Commit do Amor – Dia 7
+
+Cuidar também é dar pausa.  
+É saber a hora de dizer: "Deixa que hoje eu faço."  
+
+Tem rotina que vira amor, mas até o amor merece descanso às vezes.  
+Principalmente quando ele acontece às 6h da manhã, com coleira, latido e muito sono envolvido.
+
+O presente de hoje não é físico.  
+Mas pode render umas horinhas extras de sono e um café mais devagar.
+
+🗂️ Acesse aqui:  
+👉 [Presente do Dia 6](https://drive.google.com/file/d/1JRxkPqck5U5nXtjIpGtmfVqiDreaHd9z/view?usp=drivesdk)
+
+*P.S.: sim, não to fazendo mais que minha obrigação, mas vc sabe que demanda mt coragem minha pra sair na rua hihihi 
+te amo muito!*
