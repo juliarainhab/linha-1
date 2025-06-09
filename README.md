@@ -161,3 +161,25 @@ Mas pode render umas horinhas extras de sono e um café mais devagar.
 
 *P.S.: sim, não to fazendo mais que minha obrigação, mas vc sabe que demanda mt coragem minha pra sair na rua hihihi 
 te amo muito!*
+
+
+
+## 💘 Commit do Amor – Dia 8
+
+Todo grande casal é uma dupla estratégica.  
+E como todo bom jogo... exige sacrifícios, leitura de cenário e visão de longo prazo.
+
+Às vezes, um passo pra trás salva a rainha.  
+Às vezes, proteger um peão muda o rumo da partida.
+
+O amor, como o jogo, não é sobre vencer — é sobre jogar bem juntos.  
+Sobre saber quando atacar, quando esperar, e quando confiar que o outro vai fazer a jogada certa.
+
+Você sempre teve um bom faro pra essas coisas.  
+Hoje, quero ver se ainda lembra como a gente jogava lá no início.
+
+🕰️ Às 20h, o relógio começa a correr.  
+E a sua próxima jogada te espera no tabuleiro.
+
+te amo!
+
