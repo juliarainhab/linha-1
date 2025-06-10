@@ -183,3 +183,28 @@ E a sua próxima jogada te espera no tabuleiro.
 
 te amo!
 
+
+
+## 💘 Commit do Amor – Dia 9
+
+Nem tudo é pra agora.  
+Tem coisa que só faz sentido depois.  
+Lá na frente.  
+Quando a gente esquecer um pouco de como foi…  
+e só lembrar de como a gente se sentiu.
+
+Hoje, o desafio é sobre isso.  
+Guardar. Registrar. Proteger.
+
+O presente de hoje não vai fazer sentido de imediato.  
+Mas pode ser um dos mais valiosos quando o tempo passar.
+
+Você só precisa ser sincero com uma coisa:  
+O que você sente agora merece ser lembrado depois?
+
+A resposta fica guardada.  
+E vai ser aberta no tempo certo.
+
+O horário é o que você já sabe 🩷
+
+te amo
