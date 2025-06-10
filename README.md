@@ -205,6 +205,8 @@ O que você sente agora merece ser lembrado depois?
 A resposta fica guardada.  
 E vai ser aberta no tempo certo.
 
+Eu só sei que quero a gente juntinho pra sempre, e hoje a experiência vai ter a ver com isso!
+
 O horário é o que você já sabe 🩷
 
 te amo
