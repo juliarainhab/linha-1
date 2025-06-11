@@ -210,3 +210,23 @@ Eu só sei que quero a gente juntinho pra sempre, e hoje a experiência vai ter 
 O horário é o que você já sabe 🩷
 
 te amo
+
+
+
+## 💘 Commit do Amor – Dia 10
+
+Hoje não tem tarefa, nem enigma, nem missão. É sobre brindar.
+
+Pelo que a gente já viveu.  
+Pelo que a gente vai viver.  
+E por tudo que você merece repetir.
+
+🗓️ A surpresa de hoje não acontece só hoje.  
+Ela se renova.  
+E te espera no fim de cada mês, com gosto e personalidade.
+
+A única instrução?  
+Comemorar. Todo mês teremos que brindar e agradecer por algo que temos (ou que ainda vamos conquistar) 
+
+Descubra abaixo o presente do dia:
+👉 [Presente do Dia 10]([https://drive.google.com/file/d/1JRxkPqck5U5nXtjIpGtmfVqiDreaHd9z/view?usp=drivesdk](https://drive.google.com/file/d/1pTmjMtCjZ36e9Fd_EtAtUOIQKDCOPWU2/view?usp=sharing))
