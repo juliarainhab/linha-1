@@ -229,4 +229,4 @@ A única instrução?
 Comemorar. Todo mês teremos que brindar e agradecer por algo que temos (ou que ainda vamos conquistar) 
 
 Descubra abaixo o presente do dia:
-👉 [Presente do Dia 10]([https://drive.google.com/file/d/1JRxkPqck5U5nXtjIpGtmfVqiDreaHd9z/view?usp=drivesdk](https://drive.google.com/file/d/1pTmjMtCjZ36e9Fd_EtAtUOIQKDCOPWU2/view?usp=sharing))
+👉 [Presente do Dia 10](https://drive.google.com/file/d/1pTmjMtCjZ36e9Fd_EtAtUOIQKDCOPWU2/view?usp=sharing)
