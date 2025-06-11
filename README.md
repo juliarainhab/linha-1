@@ -228,5 +228,5 @@ E te espera no fim de cada mês, com gosto e personalidade.
 A única instrução?  
 Comemorar. Todo mês teremos que brindar e agradecer por algo que temos (ou que ainda vamos conquistar) 
 
-Descubra abaixo o presente do dia:
+Descubra o presente do dia:
 👉 [Presente do Dia 10](https://drive.google.com/file/d/1jJJclEhQXmmkP9nlPget4wj2_05a43cn/view?usp=sharing)
