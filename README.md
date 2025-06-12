@@ -230,3 +230,22 @@ Comemorar. Todo mês teremos que brindar e agradecer por algo que temos (ou que 
 
 Descubra o presente do dia:
 👉 [Presente do Dia 10](https://drive.google.com/file/d/1jJJclEhQXmmkP9nlPget4wj2_05a43cn/view?usp=sharing)
+
+
+
+## 💘 Commit do Amor – Dia 11
+E chegamos ao fim dessa experiência.
+Foram 11 dias (comecei no dia 02 hahaha), 12 pequenos presentes, surpresas e tentativas (às vezes meio bugadas 😅) de transformar amor em HTML, CSS e emoção.
+
+Esse projeto nasceu da vontade de mostrar que dá pra comemorar nosso jeito, nossa história, nossos memes e momentos sem seguir fórmula pronta. E mesmo sem ser dev sênior, eu tentei usar seu mundo pra deixar nosso amor ainda mais presente no seu.
+
+Hoje, o código compila, os testes passam (quase todos), e o deploy tá feito:
+💘 Você é o commit mais importante da minha vidaaaaa 🥹
+
+Estarei presente e participando de todos os projetos e áreas que você fizer parte. Te amo!
+
+[Experiência Final](https://projeto-final-dia12.netlify.app/)
+PS: quando abrir o site tem que clicar na tela pra começar a tocar a musiquinha hahahah 🤭
+Esse cacete não funcionou quando coloquei pra tocar automaticamente. Ainda sou uma dev iniciante, sabe como é né hahahah
+
+
