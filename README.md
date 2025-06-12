@@ -245,6 +245,8 @@ Hoje, o código compila, os testes passam (quase todos), e o deploy tá feito:
 Estarei presente e participando de todos os projetos e áreas que você fizer parte. Te amo!
 
 [Experiência Final](https://projeto-final-dia12.netlify.app/)
+
+
 PS: quando abrir o site tem que clicar na tela pra começar a tocar a musiquinha hahahah 🤭
 Esse cacete não funcionou quando coloquei pra tocar automaticamente. Ainda sou uma dev iniciante, sabe como é né hahahah
 
